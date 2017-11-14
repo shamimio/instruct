@@ -1,1 +1,0 @@
-<article></article><input data="dot"><a href="https://www.ibm.com/developerworks/community/wikis/home/wiki/Dolphins%20vs%20Panthers">Dolphins vs Panthers </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>   
